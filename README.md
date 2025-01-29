@@ -1,4 +1,4 @@
-## Hi there 👋
+Comprometido con el crecimiento profesional, estoy dispuesto a aprender y adquirir nuevas competencias, incluyendo el dominio de lenguajes o tecnologías adicionales según lo requiera el rol. Busque una oportunidad para aplicar mis conocimientos, crecer dentro de un equipo y contribuir al éxito de la organización.
 
 <!--
 **Juank8906/Juank8906** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
